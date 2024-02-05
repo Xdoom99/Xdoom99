@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on different hackers and administrators
 - 📫 How to reach me - yall can use my gmail debanshguha2004@gmail.com
 - 😄 Pronouns: He/him
-- ⚡ Fun fact:: i once coded 3 hrs while being flying
+- ⚡ Fun fact:: i once coded 3 hrs while flying
 
 <!---
 Xdoom99/Xdoom99 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
